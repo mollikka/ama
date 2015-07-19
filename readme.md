@@ -4,6 +4,8 @@
 
 -
 
+**I take my time answering because I respect you and don't want to type the first thing that pops into my mind.**
+
 ### Guidelines
 
 - Ensure your question hasn't already been answered.
